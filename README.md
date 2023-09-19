@@ -1,16 +1,18 @@
-### Hi there 👋
+### boas vindas au meu perfil 🫀
 
-<!--
-**eduardoslv20/eduardoslv20** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome é eduardo da silva ferrera alves
 
-Here are some ideas to get you started:
+- estou estudando o [alura](https://alura.com.br)
+- estou me desenolvendo na linguagem javaScript
+- utilizo esse espaço para minha organizacão e compartilhamento dos meus projetos desenvolvidos
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ### você pode entrar em contato comigo
+
+danilla.ribeiro@escola.pr.gov.br
+
+@aeee_silva
+
+![](https://media.tenor.com/ Zu-utz5YCwAAAAC/mini-mouse.gif
+
+
+https://tenor.com/pt-BR/view/the-rock-the-rock-sus-the-rock-meme-tthe-rock-sus-meme-dwayne-johnson-gif-23805584
